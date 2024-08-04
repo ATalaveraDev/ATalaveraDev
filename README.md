@@ -8,5 +8,5 @@
 
 - 📫 How to reach me **atalavera86@gmail.com**
 
-- 🍜 🏮 👺 Japan lover
+- 🍜 🏮 👺 Japanese culture enthusiast
 
